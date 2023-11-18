@@ -1,0 +1,1 @@
+# Python_posle_10seminara
